@@ -13,7 +13,7 @@
 
 ## **Interests:** 
 
-I love tech and keeping my finger on the pulse of new advancements. However, aside from tech and in particular coding, I'm super creative and I'm a lover of the arts! I enjoy checking out art exhibitions and I enjoy creating art myself (this is what led me to make-up artistry). I also enjoy baking and I am my family's designted birthday cake maker. 
+I love tech and keeping my finger on the pulse of new advancements. However, aside from tech and in particular coding, I'm super creative and I'm a lover of the arts! I enjoy checking out art exhibitions and I enjoy creating art myself (this is what led me to make-up artistry https://www.instagram.com/facesbyhawa/). I also enjoy baking and I am my family's designted birthday cake maker. 
 
 
 ## **My Favourite Website:**
