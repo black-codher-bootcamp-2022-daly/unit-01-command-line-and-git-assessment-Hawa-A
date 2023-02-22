@@ -33,7 +33,7 @@ I love tech and keeping my finger on the pulse of new advancements. However, asi
 *5. Love Jones* 
 
 
-## **The Task List of what I Want to Achieve During the Bootcamp:**
+## **My Task List: What I Want to Achieve During the Bootcamp:**
 
 *1. During the bootcamp I would like to begin my journey as a Full Stack Developer.*
 
